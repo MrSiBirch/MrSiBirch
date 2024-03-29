@@ -2,7 +2,7 @@
 - 👀 I’m interested in Home automation 
 - 🌱 I’m currently learning how to contact github support!
 - 💞️ I’m looking to collaborate on lots of things
-- 📫 How to reach me , nust reach out
+- 📫 How to reach me , just reach out
 - 😄 Pronouns: yes
 - ⚡ Fun fact: I am NOT spam
 
